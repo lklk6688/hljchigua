@@ -1,35 +1,35 @@
-ºìÁì½í³Ô¹ÏÍø ×îÐÂµØÖ· ?? (×îÐÂ¸üÐÂÊ±¼ä2023-07-18)
-ºìÁì½í³Ô¹ÏÃâ·ÑApp https://hljapk.com/
+çº¢é¢†å·¾åƒç“œç½‘ æœ€æ–°åœ°å€ ?? (æœ€æ–°æ›´æ–°æ—¶é—´2023-07-18)
+çº¢é¢†å·¾åƒç“œå…è´¹App https://hljapk.com/
 
-ºìÁì½í³Ô¹ÏÍøÒ³°æ×îÐÂ¹ÙÍø https://hlj29.co/
+çº¢é¢†å·¾åƒç“œç½‘é¡µç‰ˆæœ€æ–°å®˜ç½‘ https://hlj32.co/
 
-ºìÁì½í³Ô¹Ï±¸ÓÃÏßÂ·1 https://hlj14.net/
+çº¢é¢†å·¾åƒç“œå¤‡ç”¨çº¿è·¯1 https://hlj14.net/
 
-ºìÁì½í³Ô¹Ï±¸ÓÃÏßÂ·2 https://hlj23.co/
+çº¢é¢†å·¾åƒç“œå¤‡ç”¨çº¿è·¯2 https://hlj29.co/
 
-ºìÁì½í³Ô¹ÏÓÀ¾ÃµØÖ·£¨Ðè¿ÆÑ§??Íø¹¤¾ß£©https://hlj.fun/
+çº¢é¢†å·¾åƒç“œæ°¸ä¹…åœ°å€ï¼ˆéœ€ç§‘å­¦??ç½‘å·¥å…·ï¼‰https://hlj.fun/
 
-Ç¿ÁÒÍÆ¼ö¼ÓÈë51³Ô¹Ï¹«¸æÆµµÀ£º https://t.me/hljfundoc
+å¼ºçƒˆæŽ¨èåŠ å…¥51åƒç“œå…¬å‘Šé¢‘é“ï¼š https://t.me/hljfundoc
 
-51³Ô¹ÏTG¹Ù·½Èº https://t.me/hljccgg
+51åƒç“œTGå®˜æ–¹ç¾¤ https://t.me/hljccgg
 
-¼ÓÈëÎ¢ÐÅ¿Û¿Û·ÛË¿Èº  http://b.wiwji52.cn/s/PrV
+åŠ å…¥å¾®ä¿¡æ‰£æ‰£ç²‰ä¸ç¾¤  http://b.wiwji52.cn/s/PrV
 
-ÉÌÎñºÏ×÷Çëµç±¨(Telegram)ÁªÏµ https://t.me/DSAAA8899
+å•†åŠ¡åˆä½œè¯·ç”µæŠ¥(Telegram)è”ç³» https://t.me/DSAAA8899
 
-ÕÂÓãµ¼º½¸£ÀûÓ¦ÓÃÖÐÐÄ£ºhttps://zygdh.com/
+ç« é±¼å¯¼èˆªç¦åˆ©åº”ç”¨ä¸­å¿ƒï¼šhttps://zygdh.com/
 
-ÕÂÓãµ¼º½¸£ÀûÓ¦ÓÃÖÐÐÄ±¸ÓÃ£ºhttps://zygdh.co/
-ÍøÖ·´ò²»¿ª£¿£¿£¿
+ç« é±¼å¯¼èˆªç¦åˆ©åº”ç”¨ä¸­å¿ƒå¤‡ç”¨ï¼šhttps://zygdh.co/
+ç½‘å€æ‰“ä¸å¼€ï¼Ÿï¼Ÿï¼Ÿ
 
-1.ÇëÇÐ»»ÍøÂç WIFI/4G/5G »òÕßÊ¹ÓÃ ¿ÆÑ§ÉÏÍø¹¤¾ß£¨VP¶÷£©
+1.è¯·åˆ‡æ¢ç½‘ç»œ WIFI/4G/5G æˆ–è€…ä½¿ç”¨ ç§‘å­¦ä¸Šç½‘å·¥å…·ï¼ˆVPæ©ï¼‰
 
-2.Çë¿½±´ÍêÕûµØÖ·µ½ä¯ÀÀÆ÷·ÃÎÊ£¬ ÓÐÇ°×º https://
+2.è¯·æ‹·è´å®Œæ•´åœ°å€åˆ°æµè§ˆå™¨è®¿é—®ï¼Œ æœ‰å‰ç¼€ https://
 
-3.¸ü»»ä¯ÀÀÆ÷ÎªChrome ä¯ÀÀÆ÷£¬²»ÒªÓÃ°Ù¶Èä¯ÀÀÆ÷¡£
+3.æ›´æ¢æµè§ˆå™¨ä¸ºChrome æµè§ˆå™¨ï¼Œä¸è¦ç”¨ç™¾åº¦æµè§ˆå™¨ã€‚
 
-4.ÒÔÉÏ·½·¨¶¼²»ÐÐÇë½ØÍ¼·¢ËÍ¸øÈº¹ÜÀí·´À¡¡«
+4.ä»¥ä¸Šæ–¹æ³•éƒ½ä¸è¡Œè¯·æˆªå›¾å‘é€ç»™ç¾¤ç®¡ç†åé¦ˆï½ž
 
-5.ÏÂÔØÂìÒÏ¼ÓËÙÆ÷£ºhttps://c03ee28.obqyyh.com/c-4997/a-br85A ¿ÆÑ§ÉÏÍø¹¤¾ß
+5.ä¸‹è½½èš‚èšåŠ é€Ÿå™¨ï¼šhttps://c03ee28.obqyyh.com/c-4997/a-br85A ç§‘å­¦ä¸Šç½‘å·¥å…·
 
-Çë°ÑÍøÖ·»òÕßQQÈº·ÖÏí¸øÉí±ßÓÐÐèÒªµÄÈË £¬ÄúµÄ×ª·¢¡¢·ÖÏíÊÇÎÒÃÇÇ°½øµÄ¶¯Á¦
+è¯·æŠŠç½‘å€æˆ–è€…QQç¾¤åˆ†äº«ç»™èº«è¾¹æœ‰éœ€è¦çš„äºº ï¼Œæ‚¨çš„è½¬å‘ã€åˆ†äº«æ˜¯æˆ‘ä»¬å‰è¿›çš„åŠ¨åŠ›
