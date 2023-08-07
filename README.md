@@ -1,9 +1,9 @@
 红领巾吃瓜网 最新地址 ?? (最新更新时间2023-07-18)
 红领巾吃瓜免费App https://hljapk.com/
 
-红领巾吃瓜网页版最新官网 https://hlj32.co/
+红领巾吃瓜网页版最新官网 https://hlj48.co/
 
-红领巾吃瓜备用线路1 https://hlj14.net/
+红领巾吃瓜备用线路1 https://hlj54.co/
 
 红领巾吃瓜备用线路2 https://hlj29.co/
 
