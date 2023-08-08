@@ -1,17 +1,17 @@
-红领巾吃瓜网 最新地址 ?? (最新更新时间2023-07-18)
-红领巾吃瓜免费App https://hljapk.com/
+911爆料网 最新地址 ?? (最新更新时间2023-07-18)
+911爆料网免费App https://911bl.app/
 
-红领巾吃瓜网页版最新官网 https://hlj48.co/
+911爆料网网页版最新官网 https://hlj48.co/
 
-红领巾吃瓜备用线路1 https://hlj54.co/
+911爆料网备用线路1 https://hlj54.co/
 
-红领巾吃瓜备用线路2 https://hlj29.co/
+911爆料网备用线路2 https://911bl.net/
 
-红领巾吃瓜永久地址（需科学??网工具）https://hlj.fun/
+911爆料网永久地址（需科学??网工具）https://911bl.live/
 
-强烈推荐加入51吃瓜公告频道： https://t.me/hljfundoc
+强烈推荐加入911爆料网公告频道： https://t.me/hljfundoc
 
-51吃瓜TG官方群 https://t.me/hljccgg
+911爆料网TG官方群 https://t.me/hljccgg
 
 加入微信扣扣粉丝群  http://b.wiwji52.cn/s/PrV
 
